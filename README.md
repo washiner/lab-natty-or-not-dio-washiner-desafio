@@ -17,5 +17,5 @@ Olá pessoal, Venilton da DIO aqui! Inspirado na hype _"Natty or Not"_ do fisicu
 # Pedi para IA criar uma foto de um mestiço oriental japonês brasileiro codando em cima de um cavalo
 ![Default_A_mixed_JapaneseBrazilian_male_avatar_with_striking_fa_0](https://github.com/user-attachments/assets/1e95f003-962f-4ff6-b17f-f9ad52d3b234)
 
-# Pedi para IA criar uma foto de um mestiço oriental japonês brasileiro codando com um gato e um cachorro e os passarinhos observando como se fossem os gerentes de projeto
+# Pedi para IA criar uma foto de um mestiço oriental japonês brasileiro codando, com um gato, um cachorro e um passarinhos observando como se fossem os gerentes de projeto
 ![Default_A_mixedrace_BrazilianJapanese_programmer_with_subtle_f_2](https://github.com/user-attachments/assets/2580057c-2e05-4fb2-884b-cfa01f7a298e)
